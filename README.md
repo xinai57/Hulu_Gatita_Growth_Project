@@ -2,4 +2,4 @@
 
 ## who is Hulu
 
-Hulu is out cat. She is a British Shorthair.
+Hulu is our cat. She is a British Shorthair.
